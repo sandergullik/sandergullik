@@ -1,3 +1,3 @@
 # Cool Kid
 
-Tor Heyerdahl er min helt!
+Tor Heyerdahl er min helt!!
